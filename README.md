@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @rajabbaev
+- 👀 I’m interested in python
+- 🌱 I’m currently learning english language 
+- 📫 How to reach me t.me/im_asadbek
